@@ -21,7 +21,15 @@ Yes 100%
 
 ## Notes
 ### 2024.6.24
-xxx
+1)Mother Teresa，who received a Nobel Peace Prize for her work on behalf of the pool, dies in Calcuhe, in India,she was 87-years-old
+
+人名Teresa、地名Calcuhe、诺贝尔奖Nobel Peace Prize这些专有名词不知道，拼不出来
+
+2)A:Jerry,what time do you have?
+B:I have 5 o'clock
+
+he/her/him/his/had/have/has 中的h与前面连读，不发音
+连读没有听出来，需要加强听力练习
 
 ### 2024.6.25
 xxx
